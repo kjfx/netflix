@@ -1,7 +1,7 @@
 # Netflix机场推荐、支持奈飞非自制剧解锁，网飞解锁非自制剧机场评测<br>
 **1、Netflix机场推荐、支持奈飞非自制剧解锁**<br>
 ▶ Netflix观看教程：https://youtu.be/KiNBV4Eq_Xo<br>
-✈️ 机场网址：http://t.kxswa.com/<br>
+✈️ 机场网址：http://www.txyun.xyz/<br>
 Netflix+Disney+账号合租平台：https://ihezu.run/5hbCJC<br>
 
 **2、Netflix 非自制剧是什么？**<br>
